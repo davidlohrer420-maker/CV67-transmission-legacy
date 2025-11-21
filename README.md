@@ -1,2 +1,3 @@
 # CV67-transmission-legacy
-Transmission :lived grind , stamped broardcast
+Transmission :lived grind-crew wisdom  , stamped broardcast
+Transmission ignition - crew marker stamped 
